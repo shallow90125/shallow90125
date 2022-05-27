@@ -1,1 +1,1 @@
-Beginner of Mink Hollow
+Hermit of Mink Hollow
